@@ -1,0 +1,1 @@
+##ingin jadi lebih baik
